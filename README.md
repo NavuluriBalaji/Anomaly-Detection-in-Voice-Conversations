@@ -59,5 +59,5 @@ Start the server
 
 ## Support
 
-For support, email Navuluribalaji03@gmail.com 
+For support, email Navuluribalaji03@gmail.com, nithishpaidimarri@gmail.com
 
